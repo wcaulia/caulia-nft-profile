@@ -1,4 +1,4 @@
-# MY NFT PROFILES
+# MY NFT PROFILE
 - 0xcaulia (1).jpg
 - 0xcaulia (2).jpg
 - 0xcaulia (3).jpg
